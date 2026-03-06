@@ -1,2 +1,0 @@
-# PARRLX
-Utilize your comfort 
